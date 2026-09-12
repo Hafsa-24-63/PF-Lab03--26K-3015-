@@ -1,4 +1,4 @@
-# PF-Lab03--26K-3015-
+# PF-Lab03--26K-3015
 
 ## Hi, I'm Hafsah Asif
 
